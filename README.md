@@ -1,1 +1,5 @@
-# dale-stephenson-website.github.io
+# Resume 
+
+Career & Education History
+
+Dale Stephenson
